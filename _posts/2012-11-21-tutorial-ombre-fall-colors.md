@@ -13,7 +13,7 @@ Since this week is Thanksgiving, I thought we should get in a fall-themed tutori
 
 **Ombre Fall Colors** 
 
-(Side note: I first found this ombre/gradient technique on The Nailasaurus’ blog. She is a brilliant nail artist, and you should definitely check out her work :) )
+(Side note: I first found this ombre/gradient technique on [The Nailasaurus’](http://www.thenailasaurus.com/2012/04/gradient-nails-picture-tutorial.html) blog. She is a brilliant nail artist, and you should definitely check out her work :) )
 
 Step One: Supplies! You’ll need quite a few more supplies for this manicure than my other tutorials, but it ends up looking GREAT! You’ll need makeup wedges or small sponge slivers, toothpicks, pieces of paper or plastic (something you don’t mind getting paint on), top and base clear coat, and nail polish in brown, red, yellow, orange, white, and black.
 

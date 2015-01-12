@@ -360,3 +360,8 @@ img {
   margin-left: -340px; }
 .paging .right {
   margin-left: 320px; }
+
+.author-pic {
+  height: 400px;
+  width: 300px;
+}
